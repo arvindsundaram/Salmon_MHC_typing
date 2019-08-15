@@ -1,0 +1,1 @@
+# Salmon_MHC_typing
